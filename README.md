@@ -1,0 +1,72 @@
+# Beck – Girl
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I saw her yeah I saw her
+With a black tongue tied
+around the roses
+Fists pounding on a
+vending machine
+Torrid diamond ring
+stuck on her finger
+With a noose she could
+hang from the sun
+Pointed out with the
+dark sunglasses
+Walking quickly
+down the beach
+She spits on the sand where the
+bums are beaching
+And I know
+I'm gonna steal a life
+She doesn't even
+know it's wrong
+And you know I'm gonna
+make it right
+Take her where her
+soul belongs
+Know I'm gonna steal a life
+Nothing that I wouldn't try
+My summer girl
+Hey my summer girl
+My summer girl
+Hey my summer girl
+I saw her yeah I saw her
+With her hands tied back
+a black Suburban
+Calling out from a
+landfilled life
+Scrawling her name
+up on the ceiling
+Throw a coin in the
+fountain of dust
+White noise
+her ears are ringing
+Got a ticket for my
+midnight hanging
+Throw a from a freight
+train leaving
+And I know
+I'm gonna steal a life
+She doesn't even
+know it's wrong
+And you know
+I'm gonna make it right
+Take her where her soul belongs
+Know I'm gonna steal a life
+Nothing that I wouldn't try
+My summer girl
+Hey my summer girl
+My summer girl
+Hey my summer girl
+
+Hey my summer girl
+Hey my summer girl
+My summer girl
+Hey my summer girl
+Hey my summer girl
+Hey my summer girl
+My summer girl
+Hey my summer girl
+```
